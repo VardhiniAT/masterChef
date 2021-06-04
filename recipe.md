@@ -1,0 +1,10 @@
+- firstly, in a large mixing bowl take ¾ cup butter and 1½ cup sugar.
+- beat well until the sugar and butter turn creamy and soft.
+- now add 2 cup milk and 1 tsp vanilla extract.
+- mix well making sure everything is well combined.
+- further, place a sieve and add 3 cup maida, 1 tsp baking powder, ½ tsp baking soda and ¼ tsp salt
+- sieve the flour making sure there are no lumps present.
+- mix well until the batter is a smooth consistency.
+- transfer the cake batter into the square cake mould.
+- place the cake tray into the preheated oven. bake the cake at 180 degree celsius or 356 degrees fahrenheit for 40 minutes.
+- finally, enjoy eggless sponge cake with frosting or as it is.

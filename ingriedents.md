@@ -1,0 +1,8 @@
+- ¾ cup (150 gm) butter, room temperature
+- 1½ cup (415 gm) sugar
+- 2 cup (510 ml) milk
+- 1 tsp vanilla extract
+- 3 cup (465 gm) maida / plain flour
+- 1 tsp baking powder
+- ½ tsp baking soda
+- ¼ tsp salt
